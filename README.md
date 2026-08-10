@@ -1,4 +1,4 @@
-��# Stitchify visit www.stitchify.in
+��# Stitchify visiting link www.stitchify.in
 
 
 
